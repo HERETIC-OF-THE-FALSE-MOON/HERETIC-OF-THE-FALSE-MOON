@@ -1,6 +1,6 @@
 ## RICKS INFORMATION 
 
-level 19 # he him # british # proud third street saint + no.1 gatboss shipper
+level 19 # british # proud third street saint + no.1 gatboss shipper
 
 feel free to int with me! im always looking for a chat! i can be found at docks on the safe and 18+ server OR at the FNAF area on the safe server! 
 

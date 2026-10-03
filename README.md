@@ -1,9 +1,8 @@
 ## RICKS INFORMATION 
+hi im rick or zandik! 
 
 level 19 -- no.1 panttore / dottolone fan
 ──────────────────────────────────────────────────────────────────────────
-
-hi im rick or zandik! 
 
 feel free to chat, cuddle, hide, whatever! im usually just around on 18+ genshin! 
 

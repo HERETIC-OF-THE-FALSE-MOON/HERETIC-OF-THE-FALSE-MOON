@@ -1,5 +1,6 @@
 ## RICKS INFORMATION 
 ──────────────────────────────────────────────────────────────────────────
+
 hi im rick or zandik! 
 
 level 19 -- no.1 panttore / dottolone fan

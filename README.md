@@ -1,6 +1,6 @@
 ## RICKS INFORMATION 
 
-level 19 # he him # british
+level 19 -- no.1 panttore / dottolone fan
 ──────────────────────────────────────────────────────────────────────────
 
 hi im rick! - under 16 dni.

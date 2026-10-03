@@ -3,8 +3,10 @@
 level 19 # he him # british
 ──────────────────────────────────────────────────────────────────────────
 
-hi im rick! under 16 dni.
+hi im rick! - under 16 dni.
+
 feel free to chat, cuddle, hide, whatever! im usually just around on 18+ genshin! 
+
 check out my strawpage, leave some gimmicks pls! https://rickponytown.straw.page/ 
 
 ──────────────────────────────────────────────────────────────────────────

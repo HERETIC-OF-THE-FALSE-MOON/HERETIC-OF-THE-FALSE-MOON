@@ -2,12 +2,12 @@
 
 level 19 # he him # british
 ──────────────────────────────────────────────────────────────────────────
-
-please check out my straw page for my BYI and boundries! https://rickponytown.straw.page 
-
-plessss sign my straw page!!! id love some gimmicks! especially il dottore and dottolone ones !! :3
-
+hi im rick! under 16 dni.
+feel free to chat, cuddle, hide, whatever! im usually just around on 18+ genshin! 
+check out my strawpage, leave some gimmicks pls! https://rickponytown.straw.page/ 
 ──────────────────────────────────────────────────────────────────────────
-<img width="1920" height="576" alt="image" src="https://github.com/user-attachments/assets/070ebea6-b6c0-4fad-9e4a-48969d168def" />
+
+<img width="734" height="271" alt="image" src="https://github.com/user-attachments/assets/fd83b89d-2e37-4909-99e0-d631098766be" />
+
 
 

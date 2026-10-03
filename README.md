@@ -1,11 +1,9 @@
 ## RICKS INFORMATION 
 ──────────────────────────────────────────────────────────────────────────
 
-hi im rick or zandik! 
+hi im **rick or zandik**! -- **level 19** -- *no.1 panttore / dottolone fan*
 
-level 19 -- no.1 panttore / dottolone fan
-
-feel free to chat, cuddle, hide, whatever! im usually just around on 18+ genshin! 
+feel **free to chat, cuddle, hide,** whatever! im usually just **around on 18+ genshin!** 
 
 check out my strawpage, leave some gimmicks pls! https://rickponytown.straw.page/ 
 

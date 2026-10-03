@@ -3,7 +3,7 @@
 level 19 -- no.1 panttore / dottolone fan
 ──────────────────────────────────────────────────────────────────────────
 
-hi im rick or zandik! - under 16 dni.
+hi im rick or zandik! 
 
 feel free to chat, cuddle, hide, whatever! im usually just around on 18+ genshin! 
 

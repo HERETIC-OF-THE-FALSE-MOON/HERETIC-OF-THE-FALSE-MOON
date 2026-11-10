@@ -1,7 +1,7 @@
 ## RICKS INFORMATION 
 ──────────────────────────────────────────────────────────────────────────
 
-hi im **rick, rickle or zandik**! -- **level 20** -- *no.1 panttore / dottolone fan*
+hi im **rick, rickle or zandik**! -- **level 20** -- *no.1 panttore / dottolone fan + mitya as dottolones child truther*
 
 feel **free to chat, cuddle, hide,** whatever! im usually just **around on 18+ genshin!** 
 
